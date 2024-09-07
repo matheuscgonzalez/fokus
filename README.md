@@ -24,7 +24,3 @@ Após completar 4 ciclos de 25 minutos de foco (com pausas curtas entre eles), v
 Essa pausa ajuda a recarregar as energias para continuar o trabalho sem se sentir sobrecarregado.
 
 O ciclo se repete até que você tenha concluído todas as suas tarefas.
-
-
-file:///home/matheus/Imagens/Capturas%20de%20tela/Captura%20de%20tela%20de%202024-09-07%2015-53-54.png
-
